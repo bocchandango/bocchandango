@@ -11,11 +11,7 @@
 </p>
 
 <p align="center">
-hi, welcome to my bio, enjoy your stay. feel free to read my stuff!
-</p>
-
-<p align="center">
-[rentry](https://rentry.co/bocchandango) [prns.cc](https://pronouns.cc/@bocchandango) [strawpage](https://bocchandango.straw.page/)
+hi, welcome to my bio, enjoy your stay. feel free to read my links
 </p>
 
 <p align="center">
