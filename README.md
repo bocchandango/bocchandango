@@ -7,11 +7,11 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/9bfffbd44fb1613f7c6e76f0462261b2/a347f94ba8430d01-1e/s500x750/54ec15fa6fe563bb8c7febcf869255d0c3ab7f9c.png">
+  <img src="https://i.ibb.co/3mtz0rM2/thedogsareout.png">
 </p>
 
 <p align="center">
-hi, welcome to my bio, enjoy your stay
+.𖥔 ݁ ˖ִ🛸༄˖°. hi, welcome to my bio, enjoy your stay ‧₊˚♪ 𝄞₊˚⊹
   </p>
 
 ═════════════════════════════ 𖤓 [rentry](https://rentry.co/bocchandango) [carrd](https://bocchandango.carrd.co/) [pronouns.cc](https://pronouns.cc/@bocchandango) [strawpage](https://static.wikia.nocookie.net/pad/images/6/60/209i.png/revision/latest?cb=20130331214335) ☾ ═════════════════════════════
