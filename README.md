@@ -14,7 +14,7 @@
 hi, welcome to my bio, enjoy your stay
   </p>
 
-‧˚₊꒷꒦︶︶︶︶꒷꒦︶︶︶︶꒦꒷‧₊˚⊹⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅₊˚⊹ [rentry](https://rentry.co/bocchandango) [carrd](https://bocchandango.carrd.co/) [pronouns.cc](https://pronouns.cc/@bocchandango) [strawpage](https://static.wikia.nocookie.net/pad/images/6/60/209i.png/revision/latest?cb=20130331214335) ₊˚⊹⋅•⋅⊰∙∘☽༓☾∘∙⊱⋅•⋅‧˚₊꒷꒦︶︶︶︶꒷꒦︶︶︶︶꒦꒷‧₊˚⊹
+═══════════════════════════════ 𖤓 [rentry](https://rentry.co/bocchandango) [carrd](https://bocchandango.carrd.co/) [pronouns.cc](https://pronouns.cc/@bocchandango) [strawpage](https://static.wikia.nocookie.net/pad/images/6/60/209i.png/revision/latest?cb=20130331214335) ☾ ═══════════════════════════════
 
 <p align="center">
   <img src="https://64.media.tumblr.com/a9e8f597266c73993cc6457e65c71b44/f7835d3ddfe3e13b-67/s500x750/d47a8a1b37fcfe468d88c514c6fd1623d906f535.gifv">
