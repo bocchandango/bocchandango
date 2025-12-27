@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.ibb.co/3mtz0rM2/thedogsareout.png">
+  <img src="https://static.wikia.nocookie.net/renightmare-sleepykinq/images/b/b3/Happy_christmas.png/revision/latest/scale-to-width-down/1000?cb=20230125142203">
 </p>
 
 <p align="center">
