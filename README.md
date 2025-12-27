@@ -7,12 +7,14 @@
 </p>
 
 <p align="center">
-  <img src="https://i.ibb.co/KpXm3Jmn/sifloop.png">
+  <img src="https://64.media.tumblr.com/9bfffbd44fb1613f7c6e76f0462261b2/a347f94ba8430d01-1e/s500x750/54ec15fa6fe563bb8c7febcf869255d0c3ab7f9c.png">
 </p>
 
 <p align="center">
-hi, welcome to my bio, enjoy your stay. feel free to read my links
-</p>
+hi, welcome to my bio, enjoy your stay
+  </p>
+
+[rentry](https://rentry.co/bocchandango) [carrd](https://bocchandango.carrd.co/) [pronouns.cc](https://pronouns.cc/@bocchandango) [strawpage](https://static.wikia.nocookie.net/pad/images/6/60/209i.png/revision/latest?cb=20130331214335) (idk how to center these im sorry)
 
 <p align="center">
   <img src="https://64.media.tumblr.com/a9e8f597266c73993cc6457e65c71b44/f7835d3ddfe3e13b-67/s500x750/d47a8a1b37fcfe468d88c514c6fd1623d906f535.gifv">
