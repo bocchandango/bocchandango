@@ -3,14 +3,14 @@
 </p>
 
 <p align="center">
-  <img src="https://static.wikia.nocookie.net/renightmare-sleepykinq/images/b/b3/Happy_christmas.png/revision/latest/scale-to-width-down/1000?cb=20230125142203">
+  <img src="https://i.ibb.co/kgpcRZWB/ezgif-com-video-to-gif-converter.gif">
 </p>
 
 <p align="center">
-.𖥔 ݁ ˖ִ🛸༄˖°. hi, welcome to my bio, enjoy your stay ‧₊˚♪ 𝄞₊˚⊹
+<img src="https://gifcity.carrd.co/assets/images/gallery251/5525f26f.gif?v=e3c0bc0f"> .𖥔 ݁ ˖ִ🛸༄˖°. hi, welcome to my bio, enjoy your stay ‧₊˚♪ 𝄞₊˚⊹ <img src="https://gifcity.carrd.co/assets/images/gallery251/6b1fc19d.gif?v=e3c0bc0f">
   </p>
 
-═════════════════════════════ 𖤓 [rentry](https://rentry.co/bocchandango) [carrd](https://bocchandango.carrd.co/) [pronouns.cc](https://pronouns.cc/@bocchandango) [strawpage](https://bocchandango.straw.page/) ☾ ═════════════════════════════
+═════════════════════════ <img src="https://pixels.crd.co/assets/images/gallery56/5a91cbc6.gif?v=29416114"> [rentry](https://rentry.co/bocchandango) 𖤓 [carrd](https://bocchandango.carrd.co/) ✧ [pronouns.cc](https://pronouns.cc/@bocchandango) ☾ [strawpage](https://bocchandango.straw.page/) <img src="https://pixels.crd.co/assets/images/gallery56/5a91cbc6.gif?v=29416114"> ═════════════════════════
 
 <p align="center">
   <img src="https://64.media.tumblr.com/a9e8f597266c73993cc6457e65c71b44/f7835d3ddfe3e13b-67/s500x750/d47a8a1b37fcfe468d88c514c6fd1623d906f535.gifv">
