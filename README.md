@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.ibb.co/20yKSrgb/sifloop.png">
+  <img src="https://i.ibb.co/Rp4zqpxD/ISAT-Event-ACT6-Loop-Battle-1.png">
 </p>
 
 <p align="center">
