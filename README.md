@@ -3,7 +3,11 @@
 </p>
 
 <p align="center">
-<img src="https://gifcity.carrd.co/assets/images/gallery251/5525f26f.gif?v=e3c0bc0f"> .𖥔 ݁ ˖ִ🛸༄˖°. hi, welcome... enjoy your stay ‧₊˚♪ 𝄞₊˚⊹ <img src="https://gifcity.carrd.co/assets/images/gallery251/6b1fc19d.gif?v=e3c0bc0f">
+  <img src="https://i.ibb.co/nM80CPDf/sifloop.png">
+</p>
+
+<p align="center">
+.𖥔 ݁ ˖ִ🛸༄˖°. hi, welcome... enjoy your stay ‧₊˚♪ 𝄞₊˚⊹
   </p>
 
 <p align="center">
