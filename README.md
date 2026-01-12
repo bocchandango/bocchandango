@@ -3,21 +3,37 @@
 </p>
 
 <p align="center">
-  <img src="https://i.ibb.co/nM80CPDf/sifloop.png">
+  <img src="https://i.ibb.co/HLShwNmK/tumblr-dae712f47a5230fde3ecb22d3ac254b9-f640c922-2048.jpg">
 </p>
 
 <p align="center">
-.𖥔 ݁ ˖ִ🛸༄˖°. hi, welcome... enjoy your stay ‧₊˚♪ 𝄞₊˚⊹
+  <img src="https://64.media.tumblr.com/fa4144d44f805a959984d46c01c946bc/2d8d7f894cefcb3b-08/s75x75_c1/22aaf1bda791a64b467d2f56d51ec5e0cd594242.pnj"> <img src="https://64.media.tumblr.com/d73618cf4e27999d72d7b9f412e621d5/af4a3db3bc199ee3-d2/s75x75_c1/965ca8fd4b98accdc3530b30863bad618728791e.pnj"> <img src="https://64.media.tumblr.com/0499286b67d2ad6ea2e3a90787e814c1/b3dd15997a84c35c-c8/s75x75_c1/884fe1cc90804d9c823474c4b04a5bed0700ab16.pnj"> <img src="https://64.media.tumblr.com/40ba4e4aaf83c067c5676140ee89c698/55a6e18019092c0c-b8/s75x75_c1/9b715a870f4ddd99c76b002ce8e99f6b73f6c66c.pnj"> <img src="https://64.media.tumblr.com/b92f8fdb0ad42b84bef063b2f452cd86/4589eca9f5fde947-63/s75x75_c1/01c436192cc2ccfa3af722031a6d1d92997689ad.pnj"> <img src="https://64.media.tumblr.com/0221292e91279d89ecf9b6cc047fe55d/19f83722cce37a3f-04/s75x75_c1/dbe2add02865dd20e67912d89fbc1b638f0c6a32.pnj">
   </p>
 
 <p align="center">
-  <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/6f7f1530-27fd-4606-8d05-3019712a54fa/dd2syhp-e58a0b0f-06e8-4a12-bf9c-577e508d18a0.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi82ZjdmMTUzMC0yN2ZkLTQ2MDYtOGQwNS0zMDE5NzEyYTU0ZmEvZGQyc3locC1lNThhMGIwZi0wNmU4LTRhMTItYmY5Yy01NzdlNTA4ZDE4YTAuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0._-ctozCktDPr1eAK0y6JXdzqffbSFwnqyoKYw8--pHE"> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/902b6c0e-d2bc-4504-a34b-8533aecbff5d/djvoixf-23474558-df2f-4999-9e90-16623d5d303c.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi85MDJiNmMwZS1kMmJjLTQ1MDQtYTM0Yi04NTMzYWVjYmZmNWQvZGp2b2l4Zi0yMzQ3NDU1OC1kZjJmLTQ5OTktOWU5MC0xNjYyM2Q1ZDMwM2MucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.__gw_pxxo1GULQIwJABruR3Si2mz24mjur6gkCFCelU"> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/ac3ad591-9b1b-447a-bc59-82d5a264885e/da1hrn8-7095650e-0d77-490c-b7bb-c36d79d34d07.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9hYzNhZDU5MS05YjFiLTQ0N2EtYmM1OS04MmQ1YTI2NDg4NWUvZGExaHJuOC03MDk1NjUwZS0wZDc3LTQ5MGMtYjdiYi1jMzZkNzlkMzRkMDcucG5nIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.1PHqcRBtF9s_G1X2zlAMLDsJw5OPukp4JWqy1fDLqQY"> <img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/e4672d98-942d-4b7e-a61c-ca2cd16d5407/d18x5vu-34e61c68-5811-4afb-b58b-1f67b41893cd.jpg/v1/fill/w_99,h_56,q_75,strp/rob_zombie_stamp_by_danidaeskye_d18x5vu-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTYiLCJwYXRoIjoiL2YvZTQ2NzJkOTgtOTQyZC00YjdlLWE2MWMtY2EyY2QxNmQ1NDA3L2QxOHg1dnUtMzRlNjFjNjgtNTgxMS00YWZiLWI1OGItMWY2N2I0MTg5M2NkLmpwZyIsIndpZHRoIjoiPD05OSJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.055icRlQL7MDjdTeJfhNL6_Q99GzRJ2X3Pksez7tZ8E">
+dr. mystery "victor" burns ✚ host ✚ he/she/they + others
+  </p>
+  
+  <p align="center">
+bodily 18 (late 30's "actual age") ✚ autistic system
   </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/a9e8f597266c73993cc6457e65c71b44/f7835d3ddfe3e13b-67/s500x750/d47a8a1b37fcfe468d88c514c6fd1623d906f535.gifv">
-</p>
+  <img src="https://64.media.tumblr.com/c1f0bfcb8f8dfe933227db64adcec5a4/9a5fb49db67ac8cf-bf/s250x400/2914c48766f9d9e1132da508eb9e434c3ec0c2f5.gifv">
+  </p>
 
+  <p align="center">
+if you unironically harass me or our friends, i will laugh and throw a brick at your head
+  </p>
+
+  <p align="center">
+others may come on ponytown sometimes, but it's typically me talking :-P
+  </p>
+
+<p align="center">
+ <img src="https://64.media.tumblr.com/2aabd76d376faee35a18cde9b24e042b/6ae1cd485e0885b6-31/s100x200/de431b9bfabc35ed1aafe76a486ddcb803d6949f.pnj"> <img src="https://64.media.tumblr.com/077ff4391aea49053488199424212d95/6ae1cd485e0885b6-19/s100x200/1504d79b6f1d109220745b4639c7f10f37aeaa98.pnj"> <img src="https://64.media.tumblr.com/b1b4a9b9d757e1aba591af4aaa78d7b5/6ae1cd485e0885b6-4f/s100x200/92170cffe071f35c80a8e6b360a325c2dbb9f307.pnj"> <img src="https://64.media.tumblr.com/8245edc60ed356121ad9512a90df79de/6ae1cd485e0885b6-da/s100x200/900ad2e5029ea5d2f6828d1f1cbb1788660246c1.pnj">
+  </p>
+  
 <p align="center">
   <img src="https://64.media.tumblr.com/c4153c321a0f8afe0473bba118c568e8/49833ea7a3e178f3-5a/s1280x1920/b0861bf5a0cabd65c91272cb63b908e532540dc9.gifv">
 </p>
