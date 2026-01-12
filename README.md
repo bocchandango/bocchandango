@@ -27,7 +27,7 @@ if you unironically harass me or our friends, i will laugh and throw a brick at 
   </p>
 
   <p align="center">
-others may come on ponytown sometimes, but it's typically me talking :-P
+others may come on ponytown sometimes, but it's usually me :-P
   </p>
 
 <p align="center">
