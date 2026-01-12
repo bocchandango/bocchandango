@@ -11,7 +11,7 @@
   </p>
 
 <p align="center">
-dr. victor "mystery" burns ✚ host ✚ he/she/they + others
+dr. mystery "victor" burns ✚ host ✚ he/she/they + others
   </p>
   
   <p align="center">
