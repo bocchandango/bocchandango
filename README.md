@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-  <img src="https://i.ibb.co/HLShwNmK/tumblr-dae712f47a5230fde3ecb22d3ac254b9-f640c922-2048.jpg">
+  <img src="https://64.media.tumblr.com/212f3409af6c470f7cc9055a3e3fb91d/64779abad603652d-2a/s540x810/78b2496f5a8b08fb527df28f5f111a82a3136e7e.gifv">
 </p>
 
 <p align="center">
@@ -11,11 +11,11 @@
   </p>
 
 <p align="center">
-dr. mystery "victor" burns ✚ host ✚ he/she/they + others
+dr. victor "mystery" burns ✚ host ✚ he/she/they + others
   </p>
   
   <p align="center">
-bodily 18 (late 30's "actual age") ✚ autistic system
+bodily 18 (~36 "actual age") ✚ autistic system
   </p>
 
 <p align="center">
