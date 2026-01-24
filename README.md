@@ -3,13 +3,11 @@
 </p>
 
 <p align="center">
-    <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=jjnajv13kl9qknoj83db0thxd&redirect=true">
-      <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=jjnajv13kl9qknoj83db0thxd&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
-  </a>
+  <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=jjnajv13kl9qknoj83db0thxd&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false">
 </p>
 
 <p align="center">
-  <img src="https://i.ibb.co/PGHLy0Tb/17692112543375117.png">
+  <img src="https://i.ibb.co/TqcmXT0c/heyguys.png">
 </p>
 
 <p align="center">
