@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-  autistic dyslexic plural adult. chronically fatigued and in college so times online will not be consistent. 
+  autistic dyslexic adult. chronically fatigued and in college so times online will not be consistent. 
 </p>
 
 <p align="center">
