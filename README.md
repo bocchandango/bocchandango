@@ -11,7 +11,11 @@
 </p>
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/da58637ee8ab0e8741369b8bb166efdf/8ca39470df0aba49-41/s100x200/f995449a625e7db0e2255af8a8a3bae35d703394.pnj"> <img src="https://64.media.tumblr.com/777015c7f5dbc5ae39e6f3223114162f/dc2b298e11d55e16-85/s100x200/0fe4bf1031af3ff0817a8c2696242f36137a03c2.pnj"> <img src="https://64.media.tumblr.com/e51e0a7e0a6ca2c8c0fdd61bd6fe147d/8b1b7a293d1be5d6-12/s100x200/379241e0dd3489077ede605846409867d4d33e65.gifv"> <img src="https://64.media.tumblr.com/12682495529c0739c3d355c9d60974c4/48acf8e37591a588-c7/s100x200/ae88b7c2e2ca20fa830601938886fca512b1d243.pnj"> <img src="https://64.media.tumblr.com/92e8418c7e8d9bcf2d1b14fb5c5d8c27/4d5afd827a01f29a-f2/s100x200/ccab0c9cc97f166cb908b3e90bf39a0cc9ca642b.pnj">
+  autistic dyslexic plural adult. chronically fatigued and in college so times online will not be consistent. 
+</p>
+
+<p align="center">
+  <img src="https://camo.githubusercontent.com/5584b7c453bf6369992649b5536c7c7f96ad3b57840ed0002cb9594293c3317e/68747470733a2f2f692e6962622e636f2f79464432323339782f736966662e706e67"> <img src="https://camo.githubusercontent.com/0c44606dbfbfe638df9a5b3ccee60b5ab51298a180a6fb91dedeb8f93a75e3e9/68747470733a2f2f692e6962622e636f2f51375464744e47422f7369666c6f6f70322e706e67"> <img src="https://camo.githubusercontent.com/a6d0a5beabc0a3d6689cbaa55ca24b5f3d9200172a96ad0b01ad39d5894685b1/68747470733a2f2f692e6962622e636f2f56575070586233382f6c6f6f702e706e67">
 </p>
 
 <p align="center">
