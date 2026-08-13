@@ -6,7 +6,7 @@
 
 <p align="center"><img src="https://i.ibb.co/rG0ChBR6/7c87065d.png"></p>
 
-<p align="center">$\color{#FF0000}{welcome‎ to‎ my‎ page!‎ you‎ can‎ call‎ me‎ victor‎ or‎ butcher whichever‎ is‎ fine}$</p>
+<p align="center">$\color{#FF0000}{welcome‎ to‎ my‎ page!‎ you‎ can‎ call‎ me‎ victor‎ or‎ butcher‎ whichever‎ is‎ fine}$</p>
 
 <p align="center">$\color{#FFFF00}{i'm‎ usually‎ on‎ here‎ for‎ friends‎ but‎ you're‎ free‎ to‎ write‎ me‎ anything}$</p>
 
